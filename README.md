@@ -2,4 +2,4 @@
 
 I'm known as HighKid or HonkaDonka online (or variations of them)
 
-I MOSTLY enjoy programming
+Perhaps I'll have a website coming soon???
